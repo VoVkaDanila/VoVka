@@ -2,7 +2,5 @@ asdsdwqwxa
 jjjkjdsaffsd
 dsdsddsfsf
 dasdasdваывавы
-dsadsdsadsa
-dffsf
-dfvxgdgdgrgdzzs
+dsadsdsads
 asdsadsafafa
