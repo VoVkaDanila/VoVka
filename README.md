@@ -4,8 +4,5 @@ dsdsddsfsf
 dasdasdваывавы
 dsadsdsads
 asdsadsafafa
-nngvnhcgbxf
-sadsadaD
-gdgdrgdrgs
-yhdthftjyuihgjhgjdhjjfghfx
+nngvnhhjjfghfx
 bdfgdrgdgdsz
