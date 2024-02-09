@@ -3,6 +3,4 @@ jjjkjdsaffsd
 dsdsddsfsf
 dasdasdваывавы
 dsadsdsads
-asdsadsafafa
-nngvnhhj
-fghf
+a
